@@ -1,3 +1,3 @@
-# NZ
-1cofirst3cocor2non4cofirstcocor5remove
+30-50 
 
+the clone number represents the exact number
