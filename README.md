@@ -1,3 +1,3 @@
 30-50 
 
-the clone number represents the exact number
+the clone number represents the exact number -29
