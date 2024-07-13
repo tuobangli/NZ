@@ -1,2 +1,1 @@
-
-Beach Garden Hotel
+Company 
